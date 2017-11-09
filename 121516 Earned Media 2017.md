@@ -1,14 +1,6 @@
 **Earned Media 2017**
 
-**Resources:**
 
-* **[OFA 2016 Guide to Earned Medi**a](https://www.dropbox.com/s/84ifvuz2gmtbrtg/Earned%20Media%20Guide%202016%20FINAL.pdf?dl=0)
-
-**Copy:**
-
-Contents:
-
-[[TOC]]
 
 # **THE IMPORTANCE OF EARNED MEDIA**
 
